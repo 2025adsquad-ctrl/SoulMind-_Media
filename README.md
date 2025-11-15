@@ -40,8 +40,8 @@ Phase 3: Launch & Content Creation
 Phase 4: Growth & Partnerships
 • Partner with wellness centers, retreats, and clinics.
 • Expand services with workshops, webinars, and community events.
-https://drive.google.com/drive/folders/1a46c39q8VSA49Ut34I--WObJqruL-n-J 
-https://www.instagram.com/soulmind_marketing/
-https://www.facebook.com/profile.php?id=61582785960668 
-https://www.canva.com/design/DAG4kmYUoQs/8mqdh8ISfcsmfdbo7lKY7Q/edit?utm_content=DAG4kmYUoQs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton 
+https://drive.google.com/drive/folders/1a46c39q8VSA49Ut34I--WObJqruL-n-J //////
+https://www.instagram.com/soulmind_marketing/  /////
+https://www.facebook.com/profile.php?id=61582785960668  /////
+https://www.canva.com/design/DAG4kmYUoQs/8mqdh8ISfcsmfdbo7lKY7Q/edit?utm_content=DAG4kmYUoQs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton /////
 https://drive.google.com/file/d/1oG94b6FpfgjdEn9J0XcWGC6EL3cuRVnP/view?usp=drive_link

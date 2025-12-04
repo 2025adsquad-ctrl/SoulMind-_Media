@@ -5,9 +5,10 @@ The First Wellness Marketing Agency Specialized in Mental Health & Holistic Well
 Team Members:
 • Mayada El Rayes
 • Dalia Maher
-• Nourhan Mohamed
-• Boshra Mohamed
+• Boshra Mohamed 
+• nourhan mohamed 
 • Aya Khamis
+. fatema nabil 
  
 Project Overview
 Soulmind Media is the first wellness marketing agency specialized in mental health and holistic wellbeing services. Our goal is to bridge the gap between wellness providers and their target audiences by creating meaningful, empathetic, and impactful marketing strategies that resonate with people’s real needs. What makes us unique is our ability to combine psychology insight with creative marketing expertise, allowing us to craft authentic stories, build trust-driven campaigns, and help wellness brands connect deeply with the communities they serve.
